@@ -6,5 +6,5 @@
 - 🔭 I’m currently working on earth
 - 👯 I’m looking to collaborate on aliens
 - 🤔 I’m looking for help with ♂
-- 📫 How to reach me: NEW RIMULI 
-- ⚡ Fun fact: ASS WE CAN
+- 📫 How to reach me: new Rimuli() 
+- ⚡ Fun fact: ass we can♂
